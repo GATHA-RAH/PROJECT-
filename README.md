@@ -1,15 +1,27 @@
-# 🚀 RAP-POPKID Deployment Guide
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Black+Ops+One&size=100&pause=900&color=1BAFBAFF&center=true&width=1100&height=150&lines= RAP POPKID-+XTECH+BOT" alt="Typing SVG" /></a>
-  </p>
+## 👽HOW TO GET GATHARA
+
+  
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&color=red&lines=𝗙𝗢𝗥𝗞+𝗔𝗡𝗗+𝗦𝗧𝗔𝗥+𝗥𝗘𝗣𝗢)](https://git.io/typing-svg)
+ 
+
+  
+   
+   <a href="https://github.com/GATHA-R/KIRIMUNGE/fork"><img title="FORK-REPO" src="https://img.shields.io/badge/FORK-REPO-h?color=yellow&style=for-the-badge&logo=mazda" width="297" height="40.45"/></a></p>
 
 
+<a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
 
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Black+Ops+One&size=50&pause=1000&color=DAA520&center=true&width=910&height=100&lines= RAP POPKID+KIRIMUMGE+🤐🫡🤔+;KEEP+USING+GATHARA+MD" alt="Typing SVG" /></a>
+ 
+ 
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&color=red&lines=𝗦𝗘𝗦𝗦𝗜𝗢𝗡+𝗜𝗗+𝗦𝗜𝗧𝗘+𝗜𝗦+𝗛𝗘𝗥𝗘)](https://git.io/typing-svg)
+ 
 
 
-# ɢᴇᴛ ᴘᴀɪʀ ᴄᴏᴅᴇ
-</a></p>
-- <a href="https://popkid.vercel.app/"><img title="TAP FOR SESSION ID" src="https://img.shields.io/badge/LOG IN FOR SESSION ID-h?color=pink&style=for-the-badge&logo=porsche&logoColor=pink" width="240" height="38.45"/></a></p>
+  <a href="https://gatharasession-488d9ccb41dd.herokuapp.com/pair"><img title="GET-SESSION ID HERE" src="https://img.shields.io/badge/GET-SESSION ID HERE-h?color=pink&style=for-the-badge&logo=render" width="230" height="38.45"/></a></p>
+
+  
+  <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&color=red&lines=𝐃𝐄𝐏𝐋𝐎𝐘+𝐎𝐍+𝐇𝐄𝐑𝐎𝐊𝐔)](https://git.io/typing-svg)
 
 # ᴄʀᴇᴀᴛᴇ ʜᴇʀᴏᴋᴜ
 
